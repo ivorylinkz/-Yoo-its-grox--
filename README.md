@@ -14,3 +14,5 @@
 ᴀɪɢʜᴛ ʙᴇᴛ . ᴛʜᴀᴛ's ᴀʟʟ ғᴏʀ ɴᴏᴡ, sᴇᴇ ʏᴏᴜ ᴀʟʟ ɪɴ ᴘᴏɴʏᴛᴏᴡɴ ᴍʏ ᴠɪʟʟᴀɢᴇʀs !! 
 
 Aight bet aight bet aight bet aight bet aight bet
+
+AYO CHILL AYO CHILL AYO CHILL!! 
